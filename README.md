@@ -36,7 +36,8 @@
 - **Discord:** [Mr. Social Boost](https://discord.gg/aPbpdsbS) - Get server boosts or social boosts/nitro for cheap.
 - **Discord:** [Vendora Marketplace](https://discord.gg/jkCyVSXAyK) - Get most stuff for cheap here.
 - **Discord:** [ProduktKungen](https://discord.gg/uRb9Zkwjyw) - SE - Köp snus här.
-- **Discord:** [UltraProxies]([.](https://discord.gg/yq6gQggWHM)) - Buy cheap proxies and VPN's here.
+- **Discord:** [UltraProxies](https://discord.gg/yq6gQggWHM) - Buy cheap proxies and VPN's here.
+
 🔹 **☕ Support Me:**
 - **Ko-Fi:** [Support Me Here](https://ko-fi.com/mrvendora) - Your support helps fuel my projects! 😄
 
