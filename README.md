@@ -32,15 +32,12 @@
 ---
 
 🔹 **💬 Join the Community:**
-- **Discord:** [JustMoneyTM](https://discord.gg/4fvR8Q8mT8) - Free cash websites with bonuses. No catch. 
-- **Discord:** [Mr. Social Boost](https://discord.gg/aPbpdsbS) - Get server boosts or social boosts/nitro for cheap.
-- **Discord:** [Vendora Marketplace](https://discord.gg/jkCyVSXAyK) - Get most stuff for cheap here.
-- **Discord:** [ProduktKungen](https://discord.gg/uRb9Zkwjyw) - SE - Köp snus här.
-- **Discord:** [UltraProxies](https://discord.gg/yq6gQggWHM) - Buy cheap proxies and VPN's here.
+
+- **Coming soon...**
 
 🔹 **☕ Support Me:**
 - **Ko-Fi:** [Support Me Here](https://ko-fi.com/mrvendora) - Your support helps fuel my projects! 😄
 
 🔹 **🔗 Let's Connect:**
 - **Fiverr:** [shellieeeq_yt](https://www.fiverr.com/shellieeeq_yt) - Freelance services for all your needs! 💼  
-- **Jackpot Enterprises** [Coming Soon...](https://ko-fi.com/mrvendora) 🎬 - A work in progress website im doing for Jackpot Ent!
+- **Jackpot Enterprises** [Coming Soon...](jackpotdev.xyz) 🎬 - A work in progress website im doing for Jackpot Ent!
