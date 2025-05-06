@@ -35,9 +35,9 @@
 
 - **Coming soon...**
 
-🔹 **☕ Support Me:**
-- **Ko-Fi:** [Support Me Here](https://ko-fi.com/mrvendora) - Your support helps fuel my projects! 😄
+🔹 **☕ Support Us:**
+- **Ko-Fi:** [Support Me Here](https://ko-fi.com/jackpotdev) - Your support helps fuel my projects! 😄
 
 🔹 **🔗 Let's Connect:**
 - **Fiverr:** [shellieeeq_yt](https://www.fiverr.com/shellieeeq_yt) - Freelance services for all your needs! 💼  
-- **Jackpot Enterprises** [Coming Soon...](jackpotdev.xyz) 🎬 - A work in progress website im doing for Jackpot Ent!
+- **Jackpot** [Coming Soon...](https://jackpotdev.xyz) 🎬 - The website for my company, Jackpot.
