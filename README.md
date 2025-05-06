@@ -40,4 +40,4 @@
 
 🔹 **🔗 Let's Connect:**
 - **Fiverr:** [shellieeeq_yt](https://www.fiverr.com/shellieeeq_yt) - Freelance services for all your needs! 💼  
-- **Jackpot** [Coming Soon...](https://jackpotdev.xyz) 🎬 - The website for my company, Jackpot.
+- **Jackpot** [Click Me](https://jackpotdev.xyz) 🎬 - The website for my company, Jackpot.
